@@ -149,7 +149,7 @@ Thinking the village safe from Gargamel after learning that an image depicted by
 Traveling to [[Gargamel's castle]], Smurfette claims that she wishes to become evil again and offers to tell Gargamel where he can find Smurf Village, thus doubling his newly acquired magical power, in exchange for being returned to her evil original form. Gargamel agrees, but as with the Smurfy Thing Finder Smurfette absorbs the magical energy, and with help from Hefty and Brainy is able to defeat Gargamel and return the magic to her friends. However, the process causes her to return to her original form as a lump of clay, with no apparent means to restoring her to life; she is then carried back to Smurf Village by Hefty where both the Smurfs and Smurfettes gather to mourn her. However, their inherent magic comes together to revive killed her by a Monster No More Smurfette Anymore. </span></p>
 
 ==''Jurassic World Fallen Kingdom''==
-Million of Years Later a shard of lump of clay was burying underground unitl she's discovered by Dr. Henry Wu is seen talking with Eli Mills that bidding on a prototype of the Indoraptor
+Million of Years Later a shard of lump of clay was burying underground unitl she's discovered by Dr. Henry Wu is seen talking with Eli Mills that bidding on a prototype of the Indoraptor.
 
 ==''The Smurfs'' (2021 TV Series)==
 In the 2021 CGI TV series, Smurfette has a more active role in the village as being the action girl, teaching her fellow Smurfs the art of Smurf Fu.
